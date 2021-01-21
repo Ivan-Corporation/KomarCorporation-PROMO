@@ -1,2 +1,2 @@
 # KomarCorporation-PROMO
-![PromoKoma](https://drive.google.com/drive/folders/14xeVqaycBRnfcepHEO2eb8jOgtddogFa)
+![PromoKoma](https://ocubcw.am.files.1drv.com/y4pokXRHHgcLweo_x6mBM9-sey0FCS8DkyjEz3vkt7Sk71ZwIndwciNSnLFf1UEGIPyeIlfgopVuLIcMj99tjXIEPnJKCmkuA_4bIwjEv_HcmyrwRZ1Dq1fKOIVtkIpKcJPkwSRa_AawvAtb6lkHEJqq7hidCxUC-E38WvU5uJWUZxM9sad6oCR8FjWp7n42de4YHKdnof8UoVjNfvbOuYs1m1Qqmq7UwM49YTY6Qbx0N8/KomarCorporation-PROMO-master.png?psid=1)
